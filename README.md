@@ -12,7 +12,7 @@
 
  ###### Introduction.
 
- ###### I'm Tommy, Tom or *insert any of my fictotypes here* !, I love to cosplay, draw/craft, experiment with colors, make props, make roblox renders, cook, and music! I am a demi boy and pansexual !, I'm an fictionkin & ESSA owner!! I'm trying to learn how to speak russian and german, I enjoy writing fanfics and messing with my ocs.. heh. I have TERRIBLE social anxiety. My fictotypes in order of awakening are; 007n7 - forsaken & tpc, thomas - hwwhp, ivan - bad things, shedletsky/telamon - roblox aI LOVE MY FRIENDS.
+ ###### I'm Tommy, Tom or *insert any of my fictotypes here* !, I love to cosplay, draw/craft, experiment with colors, make props, make roblox renders, cook, and music! I am a demi boy and pansexual !, I'm an fictionkin & ESSA owner!! I'm trying to learn how to speak russian and german, I enjoy writing fanfics and messing with my ocs.. heh. I have TERRIBLE social anxiety. My fictotypes in order of awakening are; 007n7 - forsaken & tpc, thomas - hwwhp, ivan - bad things, shedletsky/telamon - roblox admins, vegeta - dbz, videl - dbz. I LOVE MY FRIENDS.
 
 <div align="center">
  <img width="350" height="66" alt="image" src="https://github.com/user-attachments/assets/a0dc862c-1d97-4d96-bd54-15a2f6ec2202" />
