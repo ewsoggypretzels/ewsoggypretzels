@@ -3,7 +3,7 @@
 
 
 ###### Basic Info.
-###### Hi, I'm donnie or soggy!! I'm a artist/animator. I currently don't have any really important socials to give but soon I'll link up an etsy and youtube. Some of my interests are dragon ball z, jjk, mlp, gachiakuta, monster high, canimals, haikyuu, spiderman, and a bunch of other random stuff, I also like musicals and stuff and I like to watch football and make stuff and yeah thats pretty much all you need to know, Oh wait and last but not least I have the post schedule of michael reeves so don't expect much, ok?
+###### Hi, I'm donnie or soggy!! I'm a artist/animator. I currently don't have any really important socials to give but soon I'll link up an etsy and youtube. Some of my interests are dragon ball z, jjk, mlp, gachiakuta, monster high, canimals, haikyuu, spiderman, and a bunch of other random stuff, I also like musicals, I like to watch football and make/craft stuff and yeah thats pretty much all you need to know, Oh and I have the post schedule of michael reeves so don't expect much, ok?
 
 <div align="center">
  <img width="350" height="66" alt="image" src="https://github.com/user-attachments/assets/a0dc862c-1d97-4d96-bd54-15a2f6ec2202" />
