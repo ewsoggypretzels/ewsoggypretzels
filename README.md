@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=your-github-username&style=plastic-&abbreviated=trueusername&label=In+Love)
+![](https://komarev.com/ghpvc/?username=your-github-username&style=plastic-&abbreviated=trueusername&label=In+Love&color=red)
 
 <img width="498" height="270" alt="AAAAAAAAAAAAAA" src="https://github.com/user-attachments/assets/5c9bef4f-6bd6-46f6-acf1-e939e88fa206" />
 <div align="center"> 
