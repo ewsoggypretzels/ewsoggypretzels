@@ -10,7 +10,12 @@
 
 <details><summary> DNI. </summary><br>
  • Everyone, I selectively interact with people I WANT too. If you are my friend/partner then yeah go ahead and walk up, I don't care.
-<details><summary> About me. </summary><br>
+
+ 
+ <details><summary> About me. </summary><br>
 • MINOR.
 • Fictionkin, IRL (Iwec/dni doubles), Kenomomimi (Inumimi).
 • Fandoms (Most I haven't watched/played yet.) ,, JJK, Any hoyoverse game (Ion support the devs.), Gachiakuta, Alien stage, Yarichin B Club (I don't support SA), The betrayal has my name, Naruto, DBZ, Death note, Code breaker, Draconia, Twisted wonderland, Tian Guan Ci Gu, The apothecary diaries, Yuri!! On Ice, Black butler, Link click, Persona, Infinty Nikki, Banana fish, Haikyuu, Ohshc, Blue lock, Mha, Btas (2004), Batman beyond, Sonic X, Chainsaw man, Evangelion.
+
+
+Links coming soon, Lazy ass github setup so.
