@@ -2,7 +2,7 @@
 
 ![](https://komarev.com/ghpvc/?username=your-github-username&style=plastic-&abbreviated=trueusername&label=In+Love)
 
-<img width="540" height="400" alt="AAAAAAAAAAAAAA" src="https://github.com/user-attachments/assets/26c45ae4-0cfe-4fdd-b7dc-bfb01138ef17" />
+<img width="498" height="270" alt="AAAAAAAAAAAAAA" src="https://github.com/user-attachments/assets/5c9bef4f-6bd6-46f6-acf1-e939e88fa206" />
 <div align="center"> 
  &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;𝕴 𝖑𝖔𝖛𝖊 𝖒𝖞 𝖌𝖋. ♪(^∇^*)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;𝖍𝖊/𝖍𝖎𝖒.&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 
